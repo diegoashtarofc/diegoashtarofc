@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @diegoashtar or Diego F. da Silva if you prefer.
+- 👀 I’m interested in Everything that Expands Human Consciousness.
+- 🌱 I’m currently learning C, Python, Java and HTML.
+- 💞️ I’m looking to collaborate on Aerospacial Engineering and Software Development.
+- 📫 How to reach me: diegofesi13@hotmail.com
+- ⚡ Fun fact: I Speak 5 languages
